@@ -26,6 +26,6 @@
                                 
    ※嚴選天然食材製作，無化學添加劑※
    
-   https://cdn.store-assets.com/s/321621/f/5003782.png
+
                                       
                                    
