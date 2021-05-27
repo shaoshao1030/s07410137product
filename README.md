@@ -1,4 +1,8 @@
 # 【桂花釀】
+
+![5003782](https://user-images.githubusercontent.com/84919199/119856937-b4173300-bf45-11eb-9924-9c371b550f35.png)
+
+
 【家庭、自用最佳選擇】 
 
  【苗栗在地原物料，頂級龍眼蜜、來春嬤柴燒芽、熬燕窩等級之水晶冰糖】  
@@ -27,7 +31,7 @@
    ※嚴選天然食材製作，無化學添加劑※
    
 ![5003782](https://user-images.githubusercontent.com/84919199/119856547-626ea880-bf45-11eb-9f99-cdf6816957a6.png)
-![5003782](https://user-images.githubusercontent.com/84919199/119856689-8205d100-bf45-11eb-9d49-1b68ccc75084.png)
+
 
                                       
                                    
